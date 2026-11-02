@@ -1,9 +1,15 @@
 ### 蓝奏云
-https://wwbsp.lanzouc.com/iHF2i4e9p86h
 
-密码:chok
+https://wwbsp.lanzouc.com/iZ2E24efh6uh
+
+密码:eb2k
 
 # 绝对不要相信本页之外任何人提供的文件，除非他是你现实中的朋友。谨防恶意程序。
+
+## 对更新v3的解释
+更新了链接逻辑，让它可以跨游戏内的睡觉运行。
+
+
 
 ## 对更新v2的解释
 
