@@ -1,8 +1,8 @@
 ### 蓝奏云
 
-https://wwbsp.lanzouc.com/iZ2E24efh6uh
+https://wwbsp.lanzouc.com/iK2qR4fes4cd
 
-密码:eb2k
+密码:hqta
 
 # 绝对不要相信本页之外任何人提供的文件，除非他是你现实中的朋友。谨防恶意程序。
 
